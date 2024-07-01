@@ -41,4 +41,4 @@ Please respect these! If you have any questions feel free to ask. I can be lenie
 
 -----------------------------------------------------------------------------------------------
 
-all art is by @ILZ566672 on twt
+all art is by @ILZ566672 on twt! pls follow them lol
