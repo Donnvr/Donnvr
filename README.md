@@ -39,3 +39,5 @@ Thin Ice (ok for moots/buddies!!! dw!!!)
 Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic.
 
 -----------------------------------------------------------------------------------------------
+
+all art is by @ILZ566672 on twt
