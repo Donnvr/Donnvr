@@ -1,5 +1,6 @@
 -----------------------------------------------------------------------------------------------
-![image](https://github.com/Donnvr/Donnvr/assets/173856323/8dbbafab-087a-47f9-9d19-c8cf45d389b8)
+![image](https://github.com/Donnvr/Donnvr/assets/173856323/0235849c-1294-40f4-a64d-d82d49a26075)
+
 
 **About Me**
 
