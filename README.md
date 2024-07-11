@@ -16,6 +16,7 @@ I have a very strong attachment to my favorite characters, Zuka, Medkit, & Cruel
 My interests bring me a lot of joy and sharing it with others is even better. Talk to me anytime! I love making new friends ^_^!
 I will also always crown back!
 Any other info should be on my Carrd.
+
 -----------------------------------------------------------------------------------------------
 
 **DNI**
