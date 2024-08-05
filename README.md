@@ -20,7 +20,8 @@ I can sometimes be crude with my jokes, please at any point tell me if you are u
 I have a very strong attachment to my favorite characters, Zuka, Medkit, Sebastian, & Cruel King, and I love hearing about others headcanons and thoughts on anybody else too!
 
 My interests bring me a lot of joy and sharing it with others is even better. Talk to me anytime! I love making new friends ^_^!
-I will also always crown back!
+
+I try my best to crown back, however sometimes I forget o_<'...
 
 Any other info should be on my Carrd.
 
