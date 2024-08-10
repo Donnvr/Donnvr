@@ -23,7 +23,7 @@ My interests bring me a lot of joy and sharing it with others is even better. Ta
 
 I try my best to crown back, however sometimes I forget o_<'...
 
-Any other info should be on my Carrd.
+Any other info should be on my Carrd. Please read that if anything else needs answers!!
 
 -----------------------------------------------------------------------------------------------
 
@@ -40,7 +40,7 @@ Any other info should be on my Carrd.
 - Other Basic DNI
 
 Thin Ice / Interact with Caution (ok for moots/buddies!!! dw!!!)
-- TADC
+- TADC Fans
 - Genshin fans
 - DID/OSDD Systems (personal reasons)
 - K-pop Stans
