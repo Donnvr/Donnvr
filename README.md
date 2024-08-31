@@ -47,6 +47,7 @@ Thin Ice / Interact with Caution (ok for moots/buddies!!! dw!!!)
 - DSMP/QSMP Fans
 - Subkit Shippers (personal reasons)
 - Chonny Jash Fans
+- Dandy's World
 
 Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic.
 
