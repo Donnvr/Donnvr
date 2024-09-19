@@ -17,7 +17,7 @@ c+h are absolutely okay no matter what avatar I'm in! I appreciate any interacti
 I can sometimes be crude with my jokes, please at any point tell me if you are uncomfortable and I will tone it down. Communication is very important to me.
 
 
-I have a very strong attachment to my favorite characters, Zuka, Medkit, Sebastian, & Cruel King, and I love hearing about others headcanons and thoughts on anybody else too!
+I have a very strong attachment to my favorite characters, Zuka, Medkit, & Cruel King, and I love hearing about others headcanons and thoughts on anybody else too!
 
 My interests bring me a lot of joy and sharing it with others is even better. Talk to me anytime! I love making new friends ^_^!
 
@@ -47,9 +47,9 @@ Thin Ice / Interact with Caution (ok for moots/buddies!!! dw!!!)
 - DSMP/QSMP Fans
 - Subkit Shippers (personal reasons)
 - Chonny Jash Fans
-- Dandy's World
+- Dandy's World Fans (iwec fandom.) 
 
-Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic.
+Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic. Fictives are usually excluded from these since thats not something that can be controlled. ^_^
 
 -----------------------------------------------------------------------------------------------
 
