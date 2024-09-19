@@ -1,6 +1,6 @@
------------------------------------------------------------------------------------------------
+![image](https://github.com/user-attachments/assets/55648bb4-ce2e-408b-baee-2dba1f260b06)
 ![image](https://github.com/Donnvr/Donnvr/assets/173856323/0235849c-1294-40f4-a64d-d82d49a26075)
-
+![image](https://github.com/user-attachments/assets/fd74c427-b91b-4d8d-99eb-78d0aeaef1e1)
 
 **About Me**
 
@@ -25,7 +25,9 @@ I try my best to crown back, however sometimes I forget o_<'...
 
 Any other info should be on my Carrd. Please read that if anything else needs answers!!
 
+![image](https://github.com/user-attachments/assets/b2a8c651-5640-44d3-b837-9eed8d384b5f)
 -----------------------------------------------------------------------------------------------
+![image](https://github.com/user-attachments/assets/8fa3e8c5-f574-45c8-a776-892bfd105217)
 
 **DNI**
 
@@ -51,6 +53,8 @@ Thin Ice / Interact with Caution (ok for moots/buddies!!! dw!!!)
 
 Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic. Fictives are usually excluded from these since thats not something that can be controlled. ^_^
 
+![image](https://github.com/user-attachments/assets/e365686d-5bbb-4fac-93a7-e8ac2de2592a)
 -----------------------------------------------------------------------------------------------
+![image](https://github.com/user-attachments/assets/e02e5223-10f9-4833-a9d2-8384c86efe64)
 
 all art is by @ILZ566672 on twt! pls follow them lol
