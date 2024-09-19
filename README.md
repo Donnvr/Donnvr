@@ -29,7 +29,9 @@ Any other info should be on my Carrd. Please read that if anything else needs an
 -----------------------------------------------------------------------------------------------
 ![image](https://github.com/user-attachments/assets/8fa3e8c5-f574-45c8-a776-892bfd105217)
 
-**DNI**
+**Interactions**
+
+DNI
 
 - Homestuck Fans
 - Phil
