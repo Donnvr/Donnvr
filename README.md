@@ -39,7 +39,7 @@ DNI
 - Alfred’s Playhouse fans
 - SH/ED twt
 - Proshippers
-- SFOTH Shippers
+- SFOTH x SFOTH Shippers
 - Endo Systems
 - Other Basic DNI
 
