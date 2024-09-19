@@ -56,5 +56,3 @@ Please respect these! If you have any questions feel free to ask. I can be lenie
 ![image](https://github.com/user-attachments/assets/e365686d-5bbb-4fac-93a7-e8ac2de2592a)
 -----------------------------------------------------------------------------------------------
 ![image](https://github.com/user-attachments/assets/e02e5223-10f9-4833-a9d2-8384c86efe64)
-
-all art is by @ILZ566672 on twt! pls follow them lol
