@@ -25,7 +25,6 @@ My interests bring me a lot of joy and sharing it with others is even better. Ta
 
 I try my best to crown back, however sometimes I forget o_<'...
 
-Any other info should be on my Carrd. Please read that if anything else needs answers!!
 
 ![image](https://github.com/user-attachments/assets/b2a8c651-5640-44d3-b837-9eed8d384b5f)
 -----------------------------------------------------------------------------------------------
