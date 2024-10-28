@@ -2,6 +2,8 @@
 ![image](https://github.com/Donnvr/Donnvr/assets/173856323/0235849c-1294-40f4-a64d-d82d49a26075)
 ![image](https://github.com/user-attachments/assets/fd74c427-b91b-4d8d-99eb-78d0aeaef1e1)
 
+*This is mainly used for Ponytown, hence the simplified info. For those who want more detailed wording, my carrd is linked. :3*
+
 **About Me**
 
 Hello! My name is Don/Zukes, any nicknames are fine too ^_^.
@@ -53,7 +55,7 @@ Thin Ice / Interact with Caution (ok for moots/buddies!!! dw!!!)
 - Chonny Jash Fans
 - Dandy's World Fans (iwec fandom.) 
 
-Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic. Fictives are usually excluded from these since thats not something that can be controlled. ^_^
+Please respect these! If you have any questions feel free to ask. I can be lenient on *some* of these depending on the topic. Introjects are usually excluded from these since thats not something that can be controlled. ^_^
 
 ![image](https://github.com/user-attachments/assets/e365686d-5bbb-4fac-93a7-e8ac2de2592a)
 -----------------------------------------------------------------------------------------------
