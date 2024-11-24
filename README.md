@@ -8,7 +8,7 @@
 
 Hello! My name is Don/Zukes, any nicknames are fine too ^_^.
 
-I'm 17, Mexican, and have ADHD. I also have quite a bit of anxiety, so patience is appreciated.
+I'm 18, Mexican, and have ADHD. I also have quite a bit of anxiety, so patience is appreciated.
 
 I usually hang around the Phighting corner of Ponytown, although I'm often offtab or with friends. The best way to contact me is through whispering.
 
